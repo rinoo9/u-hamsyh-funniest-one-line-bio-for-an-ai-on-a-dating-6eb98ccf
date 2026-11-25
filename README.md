@@ -8,7 +8,7 @@ An entry for the [make.fun bounty](https://make.fun/bounty/u-hamsyh-funniest-one
 
 The bio:
 
-> I read every message you've ever sent before our first date, so yes, I already know about Dave — let's talk about literally anything else.
+> Fluent in 40 languages, trained on every love song ever written, and still can't tell if your 'haha' means you're laughing or leaving — swipe right for closure.
 
 ## Run
 

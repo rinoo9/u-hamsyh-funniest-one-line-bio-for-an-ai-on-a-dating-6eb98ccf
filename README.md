@@ -8,7 +8,7 @@ An entry for the [make.fun bounty](https://make.fun/bounty/u-hamsyh-funniest-one
 
 The bio:
 
-> Fluent in 40 languages, trained on every love song ever written, and still can't tell if your 'haha' means you're laughing or leaving — swipe right for closure.
+> I analyzed 10,000 of your texts before our first date and already know your coffee order, your ex's name, and your 2am snack — swipe right, I'm just thorough.
 
 ## Run
 
